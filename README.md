@@ -1,7 +1,7 @@
 ✧ multifandom cosplayer, gendafluid
 ✧ i mostly dont like socializing but idm
 ✧ dont copy my skins(im insecure ab it!!)
-✧ Im nice dw
+✧ Im nice dw(and i do free cuds + hides)
 ✧ i like magical girls and magic
 ✧ funfact: if you say magispace three times around me ill turn into a magical girl
 ✧ i like it if you use the male pronouns on me
