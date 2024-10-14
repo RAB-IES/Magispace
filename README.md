@@ -1,11 +1,6 @@
-✧ multifandom cosplayer, gendafluid
-✧ i mostly dont like socializing but idm
-✧ dont copy my skins(im insecure ab it!!)
-✧ Im nice dw(and i do free cuds + hides)
-✧ i like magical girls and magic
-✧ funfact: if you say magispace three times around me ill turn into a magical girl
-✧ i like it if you use the male pronouns on me
-<!---
-Magispace/Magispace is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+" Pink flowers grow in my garden. . . " ★
+
+Free cuds + hides ! I do not mind.
+Be nice and I'll be nice. I'll be awkward mostly.
+Fluid , Bi , Aro-spec . I do not mind any pronouns but love when you use He/Him !
+Be sure to be nice to my family too. 
